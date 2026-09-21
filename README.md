@@ -1,2 +1,1 @@
-[![GitHubCard](https://githubcard.com/BabyWipes030.svg)
-](https://githubcard.com/BabyWipes030.svg?d=k6P4NBAC7mdZ)
+![GitHubCard profile card for BabyWipes030](https://githubcard.com/g/KiNFq0SQ1T_87F58.svg)
